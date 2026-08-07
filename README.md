@@ -1,1 +1,1 @@
-![](https://files.catbox.moe/8mlzcf.gif)
+![](https://sun9-26.vkuserphoto.ru/s/v1/ig2/o_3d_BO2Huv2m9b44Y_LOdrt8qS-Lm7773mih7poJflEUj5KmRy_9tSb-ltGiNyP2rbRUR-GYgsL9PEdRp6MiwDI.jpg?quality=95&as=32x13,48x20,72x30,108x45,160x67,240x100,360x150,480x201,540x226,640x267,720x301,1080x451,1280x535&from=bu&u=SmNjvAgoHRIJI814oU1XEPNoJzqyFbLZ5-MLbabmnRQ&cs=1280x0)
