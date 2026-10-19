@@ -1,1 +1,1 @@
-![](https://i.pinimg.com/736x/68/51/41/68514159ed865b81737226ff1357bbdc.jpg)
+![](https://sun9-6.vkuserphoto.ru/s/v1/ig2/neiGkSPoAjHtWNGc_QfqVwFO7EmQrffiKsc30yorITPHRU-bPEn8-CCEMWpi2ErC9ObrCJDseqOrDGP1oqXXcM0B.jpg?quality=95&as=32x21,48x32,72x48,108x72,160x107,240x160,360x240,480x320,540x360,640x427,720x480,735x490&from=bu&u=maTeUOuFPw2zuVVdq0q5rQYEcetWAsF_4BkF0dnLhpU&cs=735x0)
